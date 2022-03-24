@@ -1,4 +1,4 @@
-## Russian PC - Pahonya Belarus MacOS Keyboard Layout
+## Pahonya Bearusian Flag for Russian MacOS PC Keyboard Layout
 
 ## Cлава Україні! Жыве Беларусь!
 
